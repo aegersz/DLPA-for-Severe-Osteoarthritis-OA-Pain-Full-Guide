@@ -1,5 +1,3 @@
-# DLPA-for-Severe-Osteoarthritis-OA-Pain-Full-Guide
-
 # 🌼 DLPA for Severe Osteoarthritis (OA) Pain — Full Guide 🌼
 
 ## 🧬 Why DLPA?
